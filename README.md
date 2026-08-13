@@ -9,7 +9,7 @@
 <img width="588" height="441" alt="image" src="https://github.com/user-attachments/assets/86ca0b8e-2d65-432b-9c22-d931e04aa859" />
 us :D 
 
-[𝓢𝓪𝓼𝓪𝓴𝓾𝓻𝓮!](https://github.com/DoctorFunkbeat)
+[𝓛𝓪𝓮𝓭𝓲𝓪/𝓕𝓾𝓷𝓴𝓫𝓮𝓪𝓽!](https://github.com/DoctorFunkbeat)
 
 𝐓𝐡𝐫𝐞𝐞 𝐲𝐞𝐚𝐫𝐬 𝐨𝐟 𝐟𝐫𝐢𝐞𝐧𝐝𝐬𝐡𝐢𝐩, 𝐝𝐚𝐦 𝐢𝐭 𝐩𝐚𝐬𝐬𝐞𝐝 𝐯𝐞𝐫𝐲 𝐪𝐮𝐢𝐜𝐤𝐥𝐲, 𝐈 𝐫𝐞𝐚𝐥𝐥𝐲 𝐥𝐢𝐤𝐞𝐝 𝐭𝐡𝐚𝐭 𝐰𝐞 𝐚𝐫𝐞 𝐜𝐥𝐨𝐬𝐞𝐫 𝐧𝐨𝐰 𝐚𝐧𝐝 𝐲𝐨𝐮 𝐬𝐢𝐭 𝐰𝐢𝐭𝐡 𝐮𝐬 𝐢𝐧 𝐥𝐮𝐧𝐜𝐡 𝐧𝐨𝐰! 𝐈 𝐡𝐨𝐩𝐞 𝐰𝐞 𝐰𝐢𝐥𝐥 𝐬𝐭𝐚𝐲 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐚𝐧𝐝 𝐈 𝐚𝐦 𝐩𝐫𝐚𝐲𝐢𝐧𝐠 𝐈 𝐰𝐨𝐧’𝐭 𝐛𝐞 𝐨𝐰𝐢𝐧𝐠 𝐲𝐨𝐮 𝐦𝐲 𝟓𝐭𝐡 𝐜𝐡𝐢𝐥𝐝 🥹🥹 𝐚𝐧𝐝 𝐈’𝐦 𝐡𝐨𝐩𝐢𝐧𝐠 𝐲𝐨𝐮𝐫 𝐦𝐞𝐧𝐭𝐚𝐥 𝐡𝐞𝐚𝐥𝐭𝐡 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐛𝐞𝐭𝐭𝐞𝐫!
 <img width="586" height="523" alt="image" src="https://github.com/user-attachments/assets/5ace1464-bc3a-4128-a77b-f29fb7fc00d2" />
