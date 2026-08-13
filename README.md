@@ -20,6 +20,8 @@ us :D
 <img width="499" height="400" alt="image" src="https://github.com/user-attachments/assets/85c041ec-fd2a-4ea3-94e2-b96627189cbb" />
 me,sas and max!
 
+<img width="1600" height="1200" alt="image" src="https://github.com/user-attachments/assets/7b3ac6e7-b341-4cca-aed8-0993abcd8016" />
+shopping art with the triple Baka 
 
 
 
