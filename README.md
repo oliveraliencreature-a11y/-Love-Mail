@@ -20,6 +20,9 @@ us :D
 <img width="499" height="400" alt="image" src="https://github.com/user-attachments/assets/85c041ec-fd2a-4ea3-94e2-b96627189cbb" />
 me,sas and max!
 
+
+
+
 𝓢𝓲𝓵𝓿𝓮𝓻!
 
 𝐈𝐤 𝐲𝐨𝐮𝐫 𝐧𝐚𝐦𝐞 𝐚𝐢𝐧’𝐭 𝐬𝐢𝐥𝐯𝐞𝐫 𝐛𝐮𝐭 𝐈 𝐝𝐨𝐧’𝐭 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐬𝐡𝐚𝐫𝐞 𝐲𝐨𝐮𝐫 𝐧𝐢𝐜𝐤𝐧𝐚𝐦𝐞, 𝐰𝐞 𝐝𝐨𝐧’𝐭 𝐭𝐚𝐥𝐤 𝐦𝐮𝐜𝐡 𝐛𝐮𝐭 𝐈 𝐡𝐚𝐯𝐞 𝐬𝐨𝐦𝐞𝐭𝐡𝐢𝐧𝐠 𝐭𝐨 𝐭𝐞𝐥𝐥 𝐲𝐨𝐮 “𝐖𝐀𝐊𝐄 𝐔𝐏”
